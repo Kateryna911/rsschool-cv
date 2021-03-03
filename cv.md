@@ -35,8 +35,7 @@ womengoit.com
 March 2020 - November 2020
 
 >Mentor (MentorZ)
-Ukrainian Leadership Academy
-(ULA)
+Ukrainian Leadership Academy (ULA)
 December 2020
 
 **Education**
